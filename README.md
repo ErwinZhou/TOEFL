@@ -18,7 +18,7 @@ I am currently aiming to **pursue a master's degree at a top 30 CS university in
 
 Continue to update
 
-Feel free to contact me on batman6667@proton.me
+Feel free to contact me on ErwinZhou@outlook.com
 
 
 
