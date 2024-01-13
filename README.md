@@ -1,10 +1,10 @@
-# TOFEL
+# TOEFL
 
 ## MyBest<sup>™</sup>Scores: 102
 
 ### Reading 29 Listening 28 Speaking 23 Writing 22
 
-TOFEL essentials while I was preparing for my test on **2023/10/14**
+TOEFL essentials while I was preparing for my test on **2023/10/14**
 
 ![image-20231023194500990](img/image-20231023194500990.png)
 
